@@ -19,3 +19,5 @@ counties that keep somali breed
 1) mandera
 2) garissa
 3) tanariver
+
+camels have the ability to tackle global warming due to their unique genetic make up
