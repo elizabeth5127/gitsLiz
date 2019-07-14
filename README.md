@@ -21,3 +21,6 @@ counties that keep somali breed
 3) tanariver
 
 camels have the ability to tackle global warming due to their unique genetic make up
+am loving how i have to navigate through this new technques in bioinformatics
+i just made the right decision to attend the training despite the scandals at school
+gal you got concentrate on the  training 
